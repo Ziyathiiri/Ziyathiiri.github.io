@@ -1,1 +1,0 @@
-# Ziyathiiri.github.io
